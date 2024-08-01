@@ -11,3 +11,7 @@ Meu nome é Marcelo Paludetto
  ### vc entrar em contato comigo 📧
 antonioeduardodutraa6@gmail.com
  @antonioeduardo
+
+![](https://media.tenor.com/DwMqbUEes8oAAAAi/comandos-com-cor.gif)
+
+   
